@@ -3,7 +3,7 @@
 playing games
 skating
 
-*Education*
+*Education*:
 Nan Chiau Primary School
 Dunman High School
 
